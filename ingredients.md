@@ -1,0 +1,15 @@
+ingredients :
+- 2 cup pineapple juice   
+- 1 cup grapefruit juice
+- 1 cup water
+- 1 small orange
+- 1/2 cup green grapes
+- 3/4 cup ginger ale
+- 1 cup strawberry
+- lemon wedges
+- 1/8 cup lime juice
+- 1 cup pineapple
+- 1 small apple
+- 1 lime
+- ice cubes as required
+- 1 sprig mint leaves
